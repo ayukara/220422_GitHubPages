@@ -23,6 +23,13 @@ permalink: /
 2.サーモンをサイコロ状に切ってタレにつけて一時間冷蔵する。  
 3.２で漬けたサーモン、白ネギ、ごま、もみのりを米に盛り付ける。  
 4.余ったタレを適量かけて完成！！
+ 
+ 
+---
 
-#　二品目　豚丼
-![IMG_1943](https://user-images.githubusercontent.com/104199056/164705186-1ac782e0-2c4d-4060-b7ab-de384e5393a4.JPG)
+
+# 二品目　豚丼
+![IMG_1886](https://user-images.githubusercontent.com/104199056/164705457-0b496cda-52b2-485a-8024-720217646f02.JPG)
+
+
+coming soon...
